@@ -4,7 +4,7 @@
 
 !
 
->You don't have to have millions of dollars to spend on an advertising budget. You just have to get people to talk.
+>You don't have to have millions of dollars to spend on an advertising budget. You just have to get people to talk...
 
 **STEPPS - Six steps**
 
